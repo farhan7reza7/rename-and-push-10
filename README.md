@@ -103,4 +103,4 @@ If you find value in QuranBookk.com, please:
 ---
 
 🟢 **[Visit Now – QuranBookk.com »](https://www.quranbookk.com)**  
-📌 _Bringing the Light of the Quran and Islam to the Digital World_
+📌 _Bringing the Light of the Holy Quran and Islam to the Digital World_
